@@ -4,6 +4,6 @@
 $${\color{#4F5F4C} " \space WATCH \space ME \space with \space RESPECT! \space , \space you \space nuisance! \space " }$$
 
 
-this is a wip and i have no motivation to finish this, hello im chessplate/cheeston , this account is made for my oc, chessplate (the drawings is her yes.), im an artist, and im actively improving my art to open my first commission , im a vietnamese, i prefer to speak english more.
+this is a wip and i have no motivation to finish this, hello im chessplate/cheston , this account is made for my oc, chessplate (the drawings is her yes.), im an artist, and im actively improving my artskills to open my first commission , im a vietnamese, i prefer to speak english more.
 
 theres not much to say here, since theres really nothing special about me
